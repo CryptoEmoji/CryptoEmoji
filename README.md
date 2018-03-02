@@ -1,1 +1,1 @@
-http://cryptoemoji.space/love.html
+http://cryptoemoji.space
